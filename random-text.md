@@ -32,7 +32,7 @@ back, with his ears depressed as if afraid, and kept looking me in the
 face, as if expecting me to pursue and shoot, for he had seen many a
 bear batttle in his day.
 
-Following the ridge, which made a gardual descent to the south, I came
+Following the ridge, which made a gradual descent to the south, I came
 at length to the brow of that massive cliff that stands between Indian
 Cañon and Yosemite Falls, and here the far-famed valley came suddenly
 into view throughout almost its whole extent. The noble walls—sculptured
@@ -66,7 +66,7 @@ Yosemite scenery cautious remonstrance is vain; under its spell one’s
 body seems to go where it likes with a will over which we seem to have
 scarce any control.
 
-After a mile or so of this memoriable cliff work I approached Yosemite
+After a mile or so of this memorable cliff work I approached Yosemite
 Creek, admiring its easy, graceful, confident gestures as it comes
 bravely forward in its narrow channel, singing the last of its mountain
 songs on its way to its fate—a few rods more over the shining granite,
