@@ -77,6 +77,6 @@ smooth incline into a pool where it seems to rest and compose its gray,
 agitated waters before taking the grand plunge, then slowly slipping
 over the lip of the pool basin, it descends another glossy slope with
 rapidly accelerated speed to the brink of the tremendous cliff, and with
-sublime, fatefull confidence springs out free in the air.
+sublime, fateful confidence springs out free in the air.
 
 ...
